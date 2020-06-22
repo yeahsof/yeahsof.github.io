@@ -6,3 +6,4 @@ Nachdem er mit verschiedensten anderen Geschäften am Yukon Milliardär geworden
 * zäher als die Zähesten
 * schlauer als die Schlauesten
 * und dabei ein ehrlicher Mann geblieben
+> Leute, die Geld ausgeben, verstehen nichts von den wahren Freuden eines Kapitalisten.
