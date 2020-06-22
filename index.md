@@ -5,4 +5,4 @@ Nachdem er mit verschiedensten anderen Geschäften am Yukon Milliardär geworden
 ## Charaktereigenschaften
 * zäher als die Zähesten
 * schlauer als die Schlauesten
-* ... und dabei ein ehrlicher Mann geblieben
+* und dabei ein ehrlicher Mann geblieben
